@@ -1,6 +1,6 @@
 👋 Timothy Clausen | Building the Future with AI
 
-AI Coder | Visionary Builder | Founder of Spark ⚡ | Creator of MoonBarz 🪙
+AI Coder | Visionary Builder | Founder of Nexa ⚡ | Creator of MoonBarz 🪙
 18 y/o entrepreneur coding bold ideas into reality.
 On a mission to decentralize the future, elevate human potential, and push the limits of what’s possible with AI.
 
